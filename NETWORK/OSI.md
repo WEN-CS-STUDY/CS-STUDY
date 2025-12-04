@@ -1,0 +1,1 @@
+[B트리와 OSI 7계층](https://docs.google.com/presentation/d/19hYfWoBTcKasr9GCvpPSZY6XbJU3XxW7meqNg-hQvyI/edit?usp=drive_link)
